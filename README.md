@@ -2,4 +2,4 @@
 
 Hello everyone!
 
-I am Ninja coder!
+I am Ninja coder in Ohio!
